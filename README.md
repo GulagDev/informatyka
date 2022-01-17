@@ -1,2 +1,2 @@
 # informatyka
-WSZYTSKO co na informatykę
+WSZYTSKO co na maturę rozszerzoną z informatyki
